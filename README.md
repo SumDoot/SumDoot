@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SumDoot
 - 👀 I’m interested in your mother
 - 🌱 I’m currently learning your father
-- 💞️ I’m looking to collaborate on your mothers kuccy
+- 💞️ I’m looking to collaborate on друг.
 - 📫 How to reach me dont
 
 <!---
