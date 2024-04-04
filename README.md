@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SumDoot
-- 👀 I’m interested in your mother
-- 🌱 I’m currently learning your father
-- 💞️ I’m looking to collaborate on друг.
+- 👀 I’m interested in something thats for sure.
+- 🌱 I’m currently learning something that is either really stupid or mostly useless.
+- 💞️ I’m looking to collaborate on whatever i have going on at the moment.
 - 📫 How to reach me dont
 
 <!---
